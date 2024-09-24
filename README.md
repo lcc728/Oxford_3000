@@ -6,4 +6,4 @@ Oxford 常用 3000字
 
 中文解釋、例句和說明 https://dictionary.cambridge.org/dictionary/english-chinese-traditional/
 
-如有侵權請告知，一定緊快下架
+如有侵權請告知
